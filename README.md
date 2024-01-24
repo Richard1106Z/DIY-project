@@ -1,4 +1,4 @@
-# DIY-project
+# Richard Zhao
 
 Hi!
 
